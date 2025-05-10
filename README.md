@@ -1,2 +1,2 @@
 # Celestial-Love-Capsule
-# Lucid Love Capsules. Space Station capsules with sex beds and the view of the stars and galxys swirling for the game secondlife.
+# Lucid Love Capsules. Space Station capsule, the first in a series of interchangeable zero g sex bed equipped capsules that connect to form  space station for the game secondife.
